@@ -1,3 +1,3 @@
-Sona Industries  - Driving Innovation in Hydraulics and Agriculture
-Sona Industries  specializes in manganese mining in Ivory Coast, leveraging over three decades of expertise from our Indian partner. Established in 2023, we aim to contribute to sustainable growth in the mining sector.
-Sona Industries , manganese mining, mining in Ivory Coast, sustainable mining, mineral resources, Yamoussoukro mining, mining companies, African minerals
+Sona Industries - Hydraulic & Agricultural Solutions You Can Trust.
+Sona Industries specializes in hydraulic hose pipe manufacturing, agricultural implement solutions, and heavy-duty machinery servicing. Established in 2005, we deliver precision engineering and custom solutions tailored for diverse industries.
+Sona Industries, hydraulic solutions, agricultural implements, heavy machinery servicing, precision engineering, custom hydraulics, agricultural machinery, hydraulic hose pipes.
